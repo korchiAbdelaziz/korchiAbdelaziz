@@ -14,4 +14,4 @@ Je suis **Abdelaziz Korchi**, étudiant en génie informatique et réseaux, pass
 ### 🌟 Centres d’intérêt  
 Voyage, sport, dessin et exploration des nouvelles technologies.  
 
-📬 Retrouvez-moi sur [LinkedIn](https://www.linkedin.com/in/Abdelaziz%20Korchi).  
+📬 Retrouvez-moi sur [LinkedIn](https://www.linkedin.com/in/abdelaziz-korchi-a92ab8244/).  
